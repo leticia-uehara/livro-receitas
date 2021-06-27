@@ -22,6 +22,6 @@
 
    5. Por ultimo, adicione o fermento em pó e bata rapidamente apenas para misturar.
 
-   6.Despeje essa mistura numa forma untada e enfarinhada.
+   6. Despeje essa mistura numa forma untada e enfarinhada.
 
 *Fonte:* https://comidinhasdochef.com/bolo-de-milho-facil/
