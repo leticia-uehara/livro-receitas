@@ -28,4 +28,4 @@
 
     6. Sirva com arroz branco e batata palha.
     
-###Fonte: https://www.tudogostoso.com.br/receita/2462-strogonoff-de-frango.html
+*Fonte:* https://www.tudogostoso.com.br/receita/2462-strogonoff-de-frango.html
